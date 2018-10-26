@@ -59,4 +59,4 @@ Apache License
 
 [![как выучить стих](https://i.ytimg.com/vi/mN6-Ps-1cA0/hqdefault.jpg)](https://www.youtube.com/watch?v=iVHS3Y_eW70)
 
- https://www.youtube.com/watch?v=iVHS3Y_eW70   субтитры 
+нажмите на картинку и посмотрите видео с субтитрами
